@@ -1,2 +1,3 @@
-# Ada Recettes
+# Ada Recettes 🥙
+
 # Ada Recettes 🍪
